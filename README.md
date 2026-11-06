@@ -1,1 +1,1 @@
-# random-password
+pls dont readme xd
